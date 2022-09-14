@@ -1,3 +1,3 @@
 # Curriculum-Vitae
 
-I endevour to keep this up-to-date.
+I endeavour to keep this up-to-date.
